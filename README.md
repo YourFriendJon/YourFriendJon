@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @YourFriendJon
+- 👀 I’m interested in Making A Universe in code
+- Im just starting out, and becuse of that, im eager to learn as much as i can.
+- I look up to piratesoftware and a couple other talented people.
+- lets see where the world will take me, shall we?
